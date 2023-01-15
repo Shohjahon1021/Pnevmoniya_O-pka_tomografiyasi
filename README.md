@@ -1,0 +1,1 @@
+# Pnevmoniya_O-pka_tomografiyasi
